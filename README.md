@@ -2,8 +2,8 @@
 - 👀 I’m interested in Cybersecurity...
 - 🌱 I’m currently learning to upgrade my knowledge in order to rise my value in the labour market ...
 - 💞️ I’m looking to collaborate on Incident Responses and Threat Hunting Projects...
-- 📫 How to reach me ...https://www.linkedin.com/in/a
-ma dou-man%C3%A9-b037012
+- 📫 How to reach me ...[https://www.linkedin.com/in/a
+ma dou-man%C3%A9-b037012](https://www.linkedin.com/in/amadou-man%C3%A9-b03701205/)
 05
 
 <!---
